@@ -7,7 +7,7 @@ Quick, spoiler-safe refreshers for readers who want to continue a series without
 ## Available Recaps
 
 ### The Stolen Heir Duology
-- The Stolen Heir(the stolen heir.html)
+- [The Stolen Heir](The Stolen Heir.html)
 - The Prisoner's Throne (coming soon)
 
 ## What You'll Find Here
