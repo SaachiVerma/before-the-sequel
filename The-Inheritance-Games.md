@@ -3,7 +3,7 @@
 This recap is intended as a memory refresher for readers who have already read the book and want a quick reminder before continuing the series. It is not a substitute for the original work. 
 All characters, settings, and storylines belong to their respective authors and publishers. If you have not read the book, I strongly recommend experiencing the original story first. No summary can replicate the depth, suspense, and enjoyment of reading the book itself.
 
-<img src="The inheritance games.jpg" width="250">
+<img src="The inheritance games.jpg" width="250" align="right">
 
 ## What Happens in the Book (10 Minutes)
 The Inheritance Games revolves around Avery Kylie Grambs who initially in the book is struggling because of financial problems. One day, Tobias Hawthorne, someone Avery did not even know existed, died and he left behind his billion-dollar fortune to Avery alone despite having four grandsons and 2 daughters. Nobody knows why. The only condition laid out by Tobias for the money to go to Avery is that she must live in the house with the other Hawthrones for one year. 
