@@ -10,12 +10,15 @@ Quick, spoiler-safe refreshers for readers who want to continue a series without
 -  [The Stolen Heir](the-stolen-heir.html)
 - The Prisoner's Throne (coming soon)
 
+### The Inheritance Games Series
+- [The Inheritance Games](The-Inheritance-games.md)
+- The Hawthorne Legacy (coming soon)
+
 ## What You'll Find Here
 
-- Memory Triggers
-- Full Recaps
-- Character Relationships
-- Loose Ends That May Matter Later
+- What happens in the book (5-10 minutes)
+- Character Relationships (2 minutes)
+- Loose Ends That May Matter Later (1 minute)
 
 
 ## More series coming soon.
