@@ -11,7 +11,7 @@ Quick, spoiler-safe refreshers for readers who want to continue a series without
 - The Prisoner's Throne (coming soon)
 
 ### The Inheritance Games Series
-- [The Inheritance Games](The-Inheritance-games.md)
+- [The Inheritance Games](The-Inheritance-Games.md)
 - The Hawthorne Legacy (coming soon)
 
 ## What You'll Find Here
