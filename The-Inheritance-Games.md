@@ -15,7 +15,7 @@ Whenever Drake would abuse Libby initially in the book, Avery would insist Libby
 
 After finding out about this Grayson asks Avery to trust him to handle the situation and he tells Skye to leave house otherwise she will be arrested. This is a significant scene because this is where Grayson chooses Avery over his own mother.
 
-Throughout the book she is constantly warned to be away from the Hawthornes by different people like Thea tells the last girl that was associated with the Hawthornes was Emily and she died last year. Nash, Skye and Grayson, themselves had been subtly warning her not to get too attached to Jameson because he only looked at as a mystery to be solved and not a PERSON, that he did not really care about her except for the game.
+Throughout the book she is constantly warned to be away from the Hawthornes by different people like Thea, who tells her that the last girl that was associated with the Hawthornes was Emily and she died last year. Nash, Skye and Grayson, themselves had been subtly warning her not to get too attached to Jameson because he only looked at as a mystery to be solved and not a PERSON, that he did not really care about her except for the game.
 
 Avery eventually gets skeptical about working with Jameson so she decides to confront him and asks him about Emily and whether he only looked at her for the game. To this, he says that everything is a game. This is when she becomes close to Grayson and starts building a bond with him as well
 
