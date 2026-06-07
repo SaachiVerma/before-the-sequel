@@ -6,6 +6,9 @@ Quick, spoiler-safe refreshers for readers who want to continue a series without
 
 ## Available Recaps
 
+### The Folk Of Air Series
+- [The Cruel Prince](The-cruel-prince.html)
+
 ### The Stolen Heir Duology
 -  [The Stolen Heir](the-stolen-heir.html)
 - The Prisoner's Throne (coming soon)
