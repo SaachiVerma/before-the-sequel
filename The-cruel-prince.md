@@ -2,6 +2,7 @@
 
  ## What Happen in the Book (10 Minutes)
 
+<img src="The-cruel-prince.jpg" width="250" align="right">
 Growing up as a human in the faerie land is extremely difficult for a mortal like Jude because the faerie can enchant her and make her perform actions that she has no control over. The faerie look at her like she is not good enough and will never be on the same level as them. Despite these difficulties and being exploited her whole life in Faerie Land she is constantly reminded that she is lucky to be adopted by Madoc because he is the High King, Eldred’s general. 
 
 Madoc killed her birth parents and decided to adopt the human twins, Jude and Taryn along with Vivi. Vivi is Madoc and Jude’s mother’s daughter, so she is a part of the faerie however she hates Madoc and refuses to do whatever he asks of her. 
